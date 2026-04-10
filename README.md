@@ -1,2 +1,2 @@
-# aunulmughny.github.io
+# aribaunulmughny.github.io
 Personal portfolio website of Arib Aunul Mughny
